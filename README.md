@@ -1,0 +1,78 @@
+# Maddy Soma – Hit ittt
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+YEAH
+MADDY
+SOMA
+YEAH
+音を上げろDJ
+俺ら踊るのEasy
+音がなればKillin
+踊り歌うfeel like デンジ
+昔はステップを踏み
+何かを生み出し
+今はステップ共に踏む仲間と韻踏み
+Yeah woah
+昔バイト仕事追われ
+ギチギチでギリギリ
+派遣の金をためてビート買って
+七変化出し
+家にこもり企み
+昼から書いてる歌詞
+DMで来る会いたい
+そんな暇ないよ無理無理
+黄色い肌にガリガリの身体でmove
+Hit ittt×5
+Watch my move yeah
+Hit ittt×5
+死ぬまで yeah
+Hit ittt×7
+誰にも邪魔できない俺らの事
+どこまで行けるか試そうぜbro
+Hit ittt×5
+Watch my move yeah
+Hit ittt×5
+死ぬまで yeah
+汗を濡らすwhite T
+カップ麺を啜り
+誰もいないバスのロータリー
+走り回り遊び
+伸び切った足で飛び立つ
+塞ぐ耳と退路
+無理と放つ声も
+Shutdownしてイヤフォンつけ
+叩いてるパソコン
+Yeah yeah yeah yeah yeah woah
+Run up a check,woah
+Yeah yeah yeah yeah yeah
+Run up a check,woah
+心配かけたパパママと
+グランパとかグランマ
+口うるさいありがたい
+ほろ苦かったりしょっぱい
+味わう端から端
+味気ないよりマシ
+薄味の肉じゃがを頬張れば0プラマイ
+さしてる長針零時
+向かうスタジオに
+Hit itttする毎日
+踊りながら俺書いてる歌詞
+She looks like ハルベリー
+揺れるBodyと黒髪
+乗せる手のひらの上に
+踊る側からここに
+黄色い肌にガリガリの身体でmove
+Hit ittt×5
+Watch my move yeah
+Hit ittt×5
+死ぬまで yeah
+Hit ittt×7
+誰にも邪魔できない俺らの事
+どこまで行けるか試そうぜbro
+Hit ittt×5
+Watch my move yeah
+Hit ittt×5
+死ぬまで yeah
+```
